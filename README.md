@@ -1,4 +1,4 @@
-# What Is The Only Crypto Currency That You Should Invest?
+# Best Crypto Currency You Should Invest!
 ### **~~BitCoin~~** **DogeCoin** *~~Any Other Coins~~*
 ### **Must Buy _DogeCoin_ Now!<sub>VERY EPIC!</sub>**
 ### ***Did You Do It?<sup>YES!</sup>***
